@@ -47,4 +47,4 @@ If you  get any other issues regarding cheat or anything join discord server : h
 
 
 Subsccribe to our YouTube Channel : https://www.youtube.com/channel/UC1bOkB_eCeUO9dadusGOdLw
-Support us by donating : https://www.paypal.com/paypalme/z14i
+Support us by donating : https://www.paypal.com/paypalme/z14i 
